@@ -1,3 +1,3 @@
 # Gifs to remember
 
-Gif collection
+Gif's collection
